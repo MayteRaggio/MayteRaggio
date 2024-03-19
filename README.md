@@ -1,3 +1,4 @@
+<img src="3IA6H2MZFNAPLC7KEAMDH42K6M.avif">
 - 👋 Hi, I’m @MayteRaggio
 - 👀 I’m interested in aprender métodos para el aprendizaje digital
 - 🌱 I’m currently learning Redes Sociales
